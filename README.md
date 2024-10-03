@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lott88
+- 📫 How to reach me "a33rv3@gmail.com"
+- 😄 Pronouns: he/him
